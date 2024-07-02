@@ -6,5 +6,4 @@ Estou entusiasmado para aplicar minha paixão pela resolução de problemas e mi
 
 📱 (14) 99744-7230
 📧 joao.iray1@outlook.com
-br
-https://www.linkedin.com/in/joao-iray-5458702a6/
+
